@@ -8,4 +8,4 @@ I am Simmy Singh.
   - Travelling
   - Drawing
 
-## My favourite food is Chicken Biryani!
+## My favourite smile is :sunglasses:
